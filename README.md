@@ -57,4 +57,4 @@ Luochunfeng: No software to write Chinese on ubuntu.. /*-+
 
 陈佳煜（界面组）：抱紧各位大腿
 
-刘洁（界面组）：楼上各位大腿排成了好看的队形:) 
+刘洁（界面组）：楼上的各位大腿们排成了好看的队形：）
